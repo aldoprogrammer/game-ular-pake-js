@@ -1,2 +1,2 @@
 # game-ular-pake-js
-buat pecinta gam3, bile coba ni.
+buat pecinta gam3, bile coba ni. aplhi yg pnya
